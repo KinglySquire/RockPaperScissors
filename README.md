@@ -1,1 +1,1 @@
-this is my obligatory thing for the grade so i don't fail class.
+it's rock paper scissors. not sure what you want me to say here.
